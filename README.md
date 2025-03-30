@@ -1,6 +1,6 @@
 # hire
 
-Please download the powerpoint, and then consider hiring me
+Please read the presentation PDF, and then consider hiring me
 
 thank you
 
